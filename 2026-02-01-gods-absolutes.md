@@ -2,78 +2,70 @@
 title: "God's Absolutes"
 date: 2026-02-01
 speaker: Riley Vasold
-scripture: Exodus 20:5; Exodus 34:14; Isaiah 13:6-9; Romans 1:18-23; Romans 5:15; Romans 8:35-39; Ephesians 2:8; 1 Thessalonians 4:13-17; Revelation 4:1; Revelation 14:17-20; Revelation 20:11-12; Revelation 21:4
-tags: [jealousy-of-god, wrath-of-god, grace, love-of-god, rapture, end-times, salvation, hope]
-source_file: SERMON 02012026PM_Riley_Vasold_-_God_s_Absolutes.md
+series: God's Absolutes
+scripture: Exodus 20:5; Exodus 34:14; Isaiah 13:6-9; Revelation 14:17-20; Ephesians 2:8; Romans 5:15; Romans 8:35-39; 1 Thessalonians 4:13-17; Revelation 4:1; Revelation 20:11-12; Revelation 21:4
+tags: [jealousy-of-god, wrath-of-god, grace, love-of-god, rapture, eschatology, end-times, great-white-throne, new-heaven-new-earth]
+source_file: SERMON 02012026PM_Riley_Vasold_-_Gods_Absolutes.md
 ---
 
 ## Summary
-Riley Vasold presents six unchanging certainties — "absolutes" — about God drawn from across Scripture, intended to encourage the congregation through a spiritually dark season. Beginning with God's jealousy and righteous wrath, he moves through the boundless grace and inseparable love of God, the promised rapture of the Church, and God's ultimate victory over sin, death, and hell. The sermon closes with a personal challenge to live in light of these eternal guarantees rather than the temporal concerns of daily life.
+Riley Vasold walks through six guaranteed truths — "absolutes" — about God drawn from across Scripture, presented as encouragements to hold onto during difficult times. Moving from God's jealousy and coming wrath through to His grace, love, the rapture, and ultimate victory, the sermon builds a case that believers have every reason for hope and joy in the face of a dark world. The closing challenge calls each listener to examine whether they are truly living in light of these eternal realities.
 
 ## Scripture
-Multiple passages spanning Exodus through Revelation, anchoring each of the six absolutes in direct biblical texts. Key texts include Exodus 20:5 (God is jealous), Isaiah 13:6–9 (the Day of the Lord), Ephesians 2:8 (saved by grace through faith), Romans 8:35–39 (nothing separates us from God's love), 1 Thessalonians 4:13–17 (the rapture), and Revelation 20:11–12 (the Great White Throne judgment).
+Multiple passages spanning Exodus, Isaiah, Romans, Ephesians, 1 Thessalonians, and Revelation — used to establish six distinct attributes and promises of God as absolute certainties for believers.
 
 ## Key Themes
-- The jealousy of God as a righteous, relational attribute
-- The certainty and justice of God's coming wrath
-- Salvation by grace alone as the only escape from that wrath
-- The inseparable love of God in Christ Jesus
-- The imminent pre-tribulation rapture as a living hope
-- God's final victory over sin, death, hell, and the devil
+- God is a jealous God who tolerates no rivals
+- God's wrath against sin is real and will be fully executed
+- Salvation is entirely by grace through faith — a gift, not earned
+- Nothing can separate believers from the love of God
+- The rapture is a certain, imminent hope for the church
+- God will ultimately and completely win the war over sin, death, and hell
 
 ## Notes
 
-### Point 1 — God Is a Jealous God
-- Text: Exodus 20:5; Exodus 34:14
-- Jealousy in the biblical sense is tied to rightfully valuing one's covenant relationship, not a petty human emotion.
-- Notably, Exodus 34:14 reveals that **Jealous** is actually one of God's names.
-- Application: Modern culture creates false gods — celebrity athletes, self, fame — and God's jealousy is a warning against idol worship.
-- Proverbs 6:34 shows that misdirected jealousy leads to destructive rage; God's jealousy, by contrast, is righteous.
+### Absolute 1 — God Is a Jealous God (Exodus 20:5; Exodus 34:14)
+- The word "jealous" carries a positive meaning in Scripture — closely tied to valuing and guarding what rightfully belongs to you.
+- Notably, in Exodus 34:14, "Jealous" is given as an actual *name* of God: "the LORD, whose name is Jealous."
+- Application: Modern culture creates substitute gods, especially celebrities and athletes. God's demand for exclusive devotion has not changed.
+- Proverbs 6:34 — jealousy expressed wrongly becomes destructive rage; God's jealousy, by contrast, is righteous and protective.
 
-### Point 2 — God's Wrath Will Be Fulfilled
-- Texts: Isaiah 13:6–9; Revelation 14:17–20; Romans 12:19; Romans 1:18–23
-- God's wrath is not impulsive but stored up against persistent, willful rebellion and the suppression of truth.
-- Isaiah 13 paints a visceral picture of the Day of the Lord — melting hearts, darkened sun and moon, desolation.
-- Revelation 14 introduces the image of the great winepress of God's wrath, with blood flowing for 1,600 furlongs.
-- Romans 1:18–23 explains the reason for wrath: mankind has seen God's eternal power in creation, has no excuse, yet suppresses the truth and exchanges the glory of God for idols.
-- This point is meant not to discourage but to magnify the wonder of grace by contrast.
+### Absolute 2 — God's Wrath Will Be Fulfilled (Isaiah 13:6-9; Revelation 14:17-20; Romans 1:18-23)
+- Isaiah 13 describes the Day of the Lord as a time of overwhelming dread — hearts melting, faces flushed, the sun and moon going dark.
+- Revelation 14:17-20 pictures a great winepress of God's wrath, with blood flowing as high as a horse's bridle for 1,600 furlongs — a vivid image of total judgment.
+- Romans 1:18-23 gives the reason for wrath: humanity suppressing known truth, refusing to glorify God, and exchanging His glory for created images.
+- The point is not despair but gratitude: believers have been spared this wrath, and justice will be done for all who have despised God.
 
-### Point 3 — God's Grace Saves You
-- Texts: Ephesians 2:8; Romans 5:15
-- Grace is the only sufficient answer to God's wrath — it is unmerited, a gift, and cannot be earned.
-- Romans 5:15 frames the symmetry: one man (Adam) brought sin and death; one man (Jesus Christ) brought abounding grace.
-- Grace is boundless precisely because it must be sufficient to cover the totality of God's righteous wrath.
-- Challenge: We lose sight of this immeasurable gift when consumed by mortgages, politics, and daily frustrations.
+### Absolute 3 — God's Grace Saves You (Ephesians 2:8; Romans 5:15)
+- Ephesians 2:8 — salvation is by grace through faith; it is entirely a gift of God, not of human effort.
+- Romans 5:15 — just as one man (Adam) brought death to many, one man (Jesus Christ) brought abounding grace to many. The symmetry is deliberate and beautiful.
+- Holding God's wrath in one hand and His grace in the other makes the boundlessness of grace comprehensible — grace must be limitless to cover that wrath.
+- Challenge: We often let temporal concerns (mortgages, politics, daily frustrations) crowd out our appreciation for this immeasurable gift.
 
-### Point 4 — God Loves You
-- Text: Romans 8:35–39
-- Paul lists two categories of threats to God's love — earthly/physical (tribulation, famine, sword) and spiritual (principalities, powers, height, depth) — and declares both insufficient to separate the believer from God's love.
-- We are described as "more than conquerors" — surpassing even what Adam lost in the Fall.
-- God's love is inseparable and eternal; even death draws the believer closer to God rather than away.
-- The speaker notes that in Scripture, love and hate often express preference and choice — God has chosen His people from before the foundation of the world.
+### Absolute 4 — God Loves You (Romans 8:35-39)
+- Romans 8:35-39 — Paul lists two categories of threats that attempt to sever us from God's love:
+  - *Physical/earthly* things (tribulation, persecution, famine, sword) try to separate us from the love of *Christ*.
+  - *Spiritual* things (principalities, powers, height, depth) try to separate us from the love of *God*.
+- Neither category succeeds. Believers are "more than conquerors" — recovering more than what Adam lost in the fall.
+- God's love in the biblical sense involves choice and preference; He chose us before the foundation of the world.
+- Even death does not diminish God's love — it only brings us closer to Him.
 
-### Point 5 — God Will Rapture You
-- Texts: 1 Thessalonians 4:13–17; Revelation 4:1
-- The rapture is presented as imminent — no prophecy marks its exact timing.
-- Qualifier for participation: belief that Jesus died and rose again (1 Thess. 4:14).
-- The dead in Christ rise first; then living believers are caught up together in the clouds.
-- Revelation 4:1 ("Come up hither") is offered as a preview of the voice that will call the Church home.
-- The speaker distinguishes the Church's rapture from the separate rapture events described within the Tribulation period in Revelation, affirming a pre-tribulation position.
-- Personal reflection: The speaker's only concern about the rapture is that it might come before he has accomplished more for God.
+### Absolute 5 — God Will Rapture You (1 Thessalonians 4:13-17; Revelation 4:1)
+- 1 Thessalonians 4:13-17 — the rapture is qualified by belief that Jesus died and rose again. Believers who have died will rise first; living believers will be caught up together with them to meet the Lord in the air.
+- The rapture is imminent — no prophecy must be fulfilled before it occurs.
+- Revelation 4:1 offers a preview: John hears a trumpet-like voice say "Come up hither" — possibly a foreshadowing of the words believers will hear at the rapture.
+- This absolute is pre-tribulational in perspective: God's grace is sufficient to spare the church from the wrath of the tribulation entirely.
+- Personal note from the speaker: his only concern about the rapture is that it might come before he has done more with his life for God.
 
-### Point 6 — God Will Win the War
-- Texts: Revelation 20:11–12; Revelation 21:4
-- The Great White Throne judgment scene: earth and heaven flee from God's presence; the dead, small and great, stand before Him; the books and the Book of Life are opened.
-- Death and hell themselves are cast into the lake of fire — the final abolition of all enemies.
-- Revelation 21:4 promises no more death, sorrow, crying, or pain in the new creation.
-- The new heaven and new earth will be lit by Christ Himself, with no darkness, no devil, no sin, and reunion with loved ones who sleep in Jesus.
-
-### Conclusion and Challenge
-- Three closing questions posed to the congregation:
-  1. Are you prepared to be among the company of those who will be there?
-  2. Have you given up the temporal in exchange for the eternal?
-  3. Are you prepared to cast off mortality for immortality?
-- Closing prayer of gratitude for all six absolutes.
+### Absolute 6 — God Will Win the War (Revelation 20:11-12; Revelation 21:4)
+- Revelation 20:11-12 — the Great White Throne Judgment: all the dead stand before God; the books are opened; death and hell are cast into the lake of fire.
+- Death and hell are cast away permanently — the very concepts of death and separation from God are destroyed.
+- Revelation 21:4 — in the new world there will be no more pain, sorrow, tears, or death. The unfairness and darkness of the present world will be entirely gone.
+- The new heaven and new earth will be lit by Jesus Himself; there will be no night.
+- Closing challenge: Are you prepared to be among those present? Have you exchanged the temporal things of this world for the eternal?
 
 ## Cross-References
 *(Leave empty — cross-references are added separately)*
+
+## Series
+Part of the [God's Absolutes](../series/gods-absolutes.md) series.
