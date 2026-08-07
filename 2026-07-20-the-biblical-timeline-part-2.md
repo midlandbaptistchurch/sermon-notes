@@ -1,6 +1,6 @@
 ---
 title: "The Biblical Timeline - Part 2"
-date: 2026-08-03
+date: 2026-07-20
 speaker: Assoc Pastor Mark Simpson
 series: The Biblical Timeline
 tags: [biblical-timeline, dispensationalism, end-times, millennium, age-of-grace, body-of-christ, jews-and-gentiles]
