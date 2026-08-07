@@ -1,6 +1,6 @@
 ---
 title: "We Are His Body"
-date: 2026-08-02
+date: 2026-07-26
 speaker: Assoc Pastor Mark Simpson
 series: Ephesians Study
 scripture: Ephesians 5:30-33
