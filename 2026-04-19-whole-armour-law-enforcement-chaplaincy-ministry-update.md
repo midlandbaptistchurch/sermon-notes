@@ -1,64 +1,93 @@
 ---
-title: "Whole Armour Law Enforcement Chaplaincy — Ministry Update"
+title: "Whole Armour Law Enforcement Chaplaincy Ministry Update"
 date: 2026-04-19
-speaker: Missionary John Moe
+speaker: John Moe
 series: null
 scripture: Romans 13:1-6
-tags: [law-enforcement-chaplaincy, missions, evangelism, romans-13, first-responders, ministry-update]
-source_file: SERMON 04192026PM_Missionary_John_Moe_-_Whole_Armour_law_Enforcement_Chaplaincy_-_Ministry_Update.md
+tags: [law-enforcement-chaplaincy, ministry-update, missions, romans-13, gospel, first-responders]
+source_file: SERMON 04192026PM_John_Moe_-_Whole_Armour_Law_Enforcement_Chaplaincy_Ministry_Update.md
 ---
 
 ## Summary
-Missionary John Moe gave a ministry update on his work as an integrated law enforcement chaplain serving multiple agencies in Clinton County, Michigan, under Whole Armour Law Enforcement Chaplaincy. He described how God called him into this unique mission field, shared accounts of gospel ministry, critical incident response, and pastoral care among officers and their families. Drawing from Romans 13, he challenged the congregation to appreciate and pray for first responders who "attend continually" to the needs of others, and to support his ministry in reaching law enforcement with the gospel of Christ.
+John Moe, a former long-time member of Midland Baptist Church, presented an update on his Whole Armour Law Enforcement Chaplaincy Ministry, detailing his work as an integrated chaplain serving multiple agencies in Clinton County, Michigan. He shared personal stories of ministering to deputies, officers, and their families through critical incidents, Bible studies, funerals, and everyday relationship-building. Drawing from Romans 13:1-6, John highlighted the divine calling of law enforcement officers and his mission to connect those called to the one who called them.
 
 ## Scripture
-Romans 13:1-6 — John Moe expounded on this passage, particularly verse 6, to establish the God-ordained calling of law enforcement as ministers who "attend continually" upon civil order and justice, and to frame his chaplaincy as connecting officers to the God who called them.
+Romans 13:1-6 — John used this passage to establish the biblical basis for law enforcement as a God-ordained institution, with particular focus on verse 6: "for they are God's ministers, attending continually upon this very thing," emphasizing the unrelenting weight of vigilance carried by first responders.
 
 ## Key Themes
-- The divine calling of law enforcement as established in Romans 13
-- Integrated vs. ceremonial chaplaincy — the importance of being organically present within agencies
-- Evangelism and gospel presentation among officers, dispatchers, and first responders
-- Critical incident stress debriefing and pastoral care after traumatic events
-- The unrelenting weight carried by less than 1% of the population who serve as first responders
-- Connecting the called to the One who called them
-- The partnership of John and Sue Moe in ministry (VST — Victim Support Team)
-- Trusting God's timing in answering a ministry call
+- Integrated vs. ceremonial chaplaincy: being present from the inside out rather than a name on an org chart
+- Building trust with officers through consistent presence and relationship
+- The divine calling of law enforcement officers (Romans 13) and connecting them to God as the ultimate authority
+- Sharing the gospel in a unique and often resistant mission field
+- The husband-and-wife ministry partnership between John (chaplaincy) and Sue (Victim Support Team)
+- Critical incident stress debriefing and caring for officers' mental and emotional health
+- The weight of "attending continually" — less than 0.7% of the U.S. population serving as first responders for everyone else
 
 ## Notes
-- John Moe has a long history with Midland Baptist Church; his family attended while his children were in the youth group. He and his wife Sue relocated to Lansing in 2004.
-- He owns a business in Lansing now run by his son, and formerly worked corporate jobs in coatings/corrosion control before fully transitioning to chaplaincy.
-- **Timeline of chaplaincy development:**
-  - 2010 — Met a township lieutenant; began civilian ride-alongs
-  - 2010–2013 — Approximately 300 hours of ride-along experience
-  - 2013 — Became a sworn reserve officer
-  - 2014 — Appointed as police chaplain after initial reluctance
-  - 2014/2015 — Began intensive chaplaincy academy training
-  - 2016 — Withdrew from academy due to a house fire; returned the following year
-  - 2017 — Appointed chaplain and quartermaster for county SWAT team
-  - 2022 — Completed basic SWAT school; became a certified operator
-  - 2023 — Began serving as chaplain for the county sheriff's office
-  - 2025 — Completed state Marine Patrol training academy; became a fully deputized deputy
-- **Current ministry scope:** Bath Township Police Department, Clinton County Sheriff's Office, Clinton County Special Operations (SWAT) Team, peer assistance team coordinator; additionally called upon by 3–4 other county police agencies, two fire departments, Clinton County Area Ambulance Service, and county 911 dispatch. Over 350 people across these organizations have open doors for ministry.
-- **Sue Moe** serves as a volunteer on the Clinton County Victim Support Team (VST), responding to scenes of completed suicides, accidental deaths, and other critical incidents to support families. She shared how her nephew's fentanyl overdose death four years prior prompted her to join the VST.
-- **Ministry highlights shared:**
-  - A deputy called John immediately after getting saved while pulled over on the side of the road; John and Sue attended his baptism the morning of this service.
-  - Led a county Bible study (January–March) with eight deputies attending; gave a clear gospel presentation on the final night. Two deputies from that study attended Friend Day at Solid Rock Baptist Church the Sunday prior.
-  - One deputy wrestled openly with the gospel's teaching that even the murderer of his grandparents could be forgiven — an ongoing conversation.
-  - Conducted a critical incident stress debrief for the SWAT team following the Michigan State University active shooter event.
-  - Responded to the scene of a grandfather and five-year-old child who fell through ice on a pond (both died); Sue prayed with the family on scene.
-  - Conducted a funeral service for the son of a county firefighter who died by suicide — standing room only, approximately 150 attendees; gave a clear gospel presentation.
-  - Responded to a Bath Township plane crash with three fatalities.
-  - Involved in three officer-involved shootings since joining the county.
-  - Responded to a drunk-driving incident in which a family of 16 was struck, two killed instantly.
-  - Led prayer for 75+ officers from multiple agencies before a coordinated SWAT operation to apprehend a murder suspect.
-- **Key distinction — Integrated vs. Ceremonial Chaplaincy:** A ceremonial chaplain is often a local pastor whose name appears on an org chart but who has little relational presence. An integrated chaplain is organically embedded in the agencies — serving in sworn/deputized roles, on the SWAT team, running peer assistance — building trust from the inside out.
-- Expressed frustration with the International Conference of Police Chaplains' tendency to discourage chaplains from sharing their specific faith; is exploring a Christ-centered organization called Heroic Deeds (based in Ohio).
-- Ran a county Bible study using the King James Bible; noted that deputies bringing other translations sometimes recognized the clarity of the KJV on their own.
-- **Romans 13:6 emphasis:** The phrase "attending continually" carries the weight of unceasing vigilance — on holidays, anniversaries, sick days, snowstorms, and national crises. Less than 0.69% of the U.S. population serves as first responders, yet they respond to the worst days of the remaining 99.3%.
-- **Ministry needs expressed:**
-  - Financial support (partial compensation from township and marine deputy roles; no full benefits or retirement)
-  - Prayer support — described as more important than financial support
-  - Prayer for God to raise up additional law enforcement chaplains to meet the growing need
+
+### John's Background and Call to Chaplaincy
+- John and Sue were longtime, beloved members of Midland Baptist before moving to Lansing in 2004 to start a business.
+- John wrote the civil service exam for the Michigan State Police in 1989 but pursued agricultural business instead. He credits God with needing to mature him in character before placing him in law enforcement.
+- In 2010, through his business dealings in Lansing, John met a lieutenant and began civilian ride-alongs — accumulating approximately 300 hours in a patrol car between 2010 and 2013.
+- In 2013, he was extended an opportunity to become a sworn reserve officer. A sergeant recognized his consistent Christian witness and suggested he consider the chaplain role.
+- He became the chaplain for Bath Township Police Department in 2014, entering intense training including attendance at a police academy.
+- Timeline of ministry expansion:
+  - 2014: Became chaplain; began police academy training
+  - 2017: Appointed to Clinton County SWAT team as chaplain and quartermaster
+  - 2022: Completed basic SWAT school; became a certified SWAT operator chaplain
+  - 2023: Began serving as chaplain for the Clinton County Sheriff's Office
+  - 2025: Attended state training academy for Marine Patrol; became a fully deputized deputy
+- Current reach: Bath Township Police Department, Clinton County Sheriff's Office, Clinton County Special Operations Team, plus frequent ministry to three or four other police agencies, two fire departments, Clinton County Area Ambulance Service, and County 911 Dispatch — over 350 people across these organizations.
+
+### Sue's Role — Victim Support Team (VST)
+- Sue serves as a volunteer with Clinton County's Victim Support Advocates team.
+- She is called to scenes involving critical incidents such as completed suicides and accidental deaths, where she ministers to surviving family members.
+- Her work on scene creates an organic connection with deputies' spouses and families, opening doors for the couple to build deeper relationships with officers' households.
+- A vivid example was shared: at a scene where a grandfather and a five-year-old tragically drowned after going through ice on a pond, Sue gathered the family, the sheriff, a sergeant, and a deputy, and led the entire room in prayer.
+
+### Integrated Chaplaincy Model
+- John distinguished between *ceremonial* chaplains (often a local pastor listed on an org chart with little real relationship to the team) and *integrated* chaplains who are organically involved in the officers' daily world.
+- His sworn reserve status, deputy credentials, SWAT membership, and Peer Assistance Team coordinator role give him a seat at the table and build a reservoir of trust.
+- He serves as coordinator of the county's Peer Assistance Team — a small team that checks in with officers following rough calls or personal difficulties.
+- He is also a certified debriefer for Critical Incident Stress Management (CISM) through the International Critical Incident Stress Foundation (ICISF). He has conducted debriefs following major events including:
+  - The Michigan State University active shooter event (SWAT team was first tactical boots on the ground)
+  - A grandfather and child drowning through pond ice
+  - A family of 16 struck by a drunk driver
+  - Multiple officer-involved shootings
+  - A plane crash in Bath Township
+  - A coordinated multi-agency takedown of suspects in a cold-case hunter murder in Bath Township, where John opened the briefing in prayer before 75+ officers from local, state, and federal agencies
+
+### Bible Study with Deputies
+- From late January through mid-March of the current year, John led the first-ever Bible study at the county level, with eight deputies attending regularly.
+- Participants brought a wide range of backgrounds — Catholic, Nazarene/Wesleyan, modern evangelical — and various Bible translations.
+- John's approach: He established the authority of Scripture in week one (objective truth), then built a Christ-centered gospel foundation over seven subsequent weeks, including a study on Gideon and a session on the divine calling of law enforcement.
+- On the final night, he gave a clear gospel presentation tracing from the Garden of Eden into the New Testament, explaining justification by faith alone versus works-based salvation.
+- One deputy, raised attending a large church, had always believed salvation depended on good works; John explained the distinction between justification (100% accomplished at the cross) and sanctification.
+- Another deputy wrestled with whether the murderer of his grandparents could be forgiven and enter heaven — a conversation John handled with compassion and honesty, affirming both grace and his own human struggle with the same question.
+- Four of the deputies who attended the Bible study came to Solid Rock Baptist Church's Friend Day the following Sunday.
+
+### Gospel Ministry and the Heroic Deeds Organization
+- John expressed frustration with the International Conference of Police Chaplains (ICPC), the world's largest chaplaincy organization, which discourages chaplains from speaking about their specific faith.
+- He is pursuing connection with *Heroic Deeds*, an Ohio-based organization that takes a forward, Christ-centered approach to law enforcement chaplaincy. He plans to attend a meeting with them in August.
+- He also shared conducting a funeral service for the son of a firefighter in the county — a veteran who died by suicide. Though outside his pastoral comfort zone, he gave a clear gospel presentation to a mixed, non-churchy crowd.
+
+### Romans 13:1-6 — The Divine Calling of Law Enforcement
+- **Verse 1**: All governing powers are ordained of God.
+- **Verse 2**: Resisting the powers means resisting God's ordinance, bringing judgment.
+- **Verse 3**: Rulers are not a terror to good works but to evil.
+- **Verse 4**: The ruler is a *minister of God* — bearing the sword as a revenger to execute wrath on evildoers.
+- **Verse 6** (key focus): "For they are God's ministers, attending continually upon this very thing." — *Attending continually* means waiting on or caring for without pause, regardless of conditions: holidays, anniversaries, illness, weather, cultural climate, or national crisis.
+- Statistic: Less than 0.69% of the U.S. population serves as first responders (full-time and volunteer firefighters, law enforcement at all levels, EMS, dispatchers), yet they attend continually to the worst days of the other 99.3%.
+- John's ministry mission statement: *"The job of a cop chaplain is to connect the called to the one who did the calling. My job is to take the chapel into their work environment and world and be an ambassador for Christ in this unique mission field."*
+
+### Ministry Needs
+- John transitioned to near-full-time chaplaincy two years ago, turning down a Vice President of Business Development offer and a full-time position with benefits from the police department in order to maintain the flexibility the ministry requires.
+- He receives partial hourly compensation (~15 hours/week) from Bath Township for community relations work. The Marine Deputy role is partially funded by $5,000 in shared state funding.
+- **Prayer requests**:
+  1. Financial support to sustain full-time chaplaincy ministry
+  2. A neighboring county recently contacted him about taking on additional chaplaincy — he is already stretched thin; prayer for wisdom and boundaries
+  3. The Lord to raise up a Bible-believing chaplain to help meet the enormous unmet need in this field — someone with a heart for this ministry who can assist or take on additional agencies
+- Prayer cards are available at the visitors' desk at Midland Baptist.
 
 ## Cross-References
 *(Leave empty — cross-references are added separately)*
