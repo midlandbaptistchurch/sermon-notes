@@ -2,66 +2,69 @@
 title: "God's Absolutes"
 date: 2026-02-01
 speaker: Riley Vasold
-scripture: Exodus 20:5; Exodus 34:14; Isaiah 13:6-9; Romans 1:18-23; Romans 5:15; Romans 8:35-39; Ephesians 2:8; 1 Thessalonians 4:13-17; Revelation 4:1; Revelation 14:17-20; Revelation 20:11-12; Revelation 21:4
-tags: [jealousy-of-god, wrath-of-god, grace, love-of-god, rapture, eschatology, salvation, second-coming]
-source_file: SERMON 02012026PM_Riley_Vasold_-_God_s_Absolutes.md
+series: God's Absolutes
+scripture: Exodus 20; Exodus 34; Isaiah 13; Revelation 14; Romans 1; Ephesians 2; Romans 5; Romans 8; 1 Thessalonians 4; Revelation 4; Revelation 20-21
+tags: [jealousy-of-god, wrath-of-god, grace, love-of-god, rapture, eschatology, salvation, end-times]
+source_file: SERMON 02012026PM_Riley_Vasold_-_Gods_Absolutes.md
 ---
 
 ## Summary
-Riley Vasold presents six absolute certainties about God drawn from Scripture, moving from God's jealousy and righteous wrath through to His saving grace, unfailing love, the coming rapture, and His ultimate victory over sin and death. The sermon is intended to encourage and uplift the congregation during a spiritually and seasonally dark time, grounding listeners in eternal promises rather than temporal concerns.
+Riley Vasold presents six "absolutes" — unchanging guarantees about God — intended to encourage the congregation through a difficult season. Moving from God's jealousy and coming wrath to his saving grace, unfailing love, the promise of the Rapture, and his ultimate victory over sin and death, the sermon calls believers to hold fast to these certainties as anchors for daily life.
 
 ## Scripture
-Multiple passages across both Testaments — including Exodus 20, Romans 1, 5, and 8, Ephesians 2, 1 Thessalonians 4, and Revelation 4, 14, 20, and 21 — are woven together to establish each of the six absolutes.
+Multiple passages spanning Exodus through Revelation, tracing the character of God from his jealousy over idolatry (Exodus 20; 34) to the establishment of the new heaven and new earth (Revelation 20–21).
 
 ## Key Themes
-- God's jealousy as a holy attribute, not a negative trait
-- The certainty and righteousness of God's coming wrath
-- Salvation by grace through faith alone (Ephesians 2:8)
-- The inseparable love of God for believers (Romans 8:35-39)
-- The imminent pre-tribulation rapture as a living hope
-- God's final victory: the Great White Throne judgment and the new heaven and earth
+- God is a jealous God who tolerates no rivals
+- God's wrath against sin is real and will be fulfilled
+- God's grace is the only and sufficient answer to that wrath
+- God's love is inseparable from believers
+- The Rapture is an imminent, certain hope for the Church
+- God will ultimately and completely win the war against evil
 
 ## Notes
-**Point 1 — God Is a Jealous God (Exodus 20:5; Exodus 34:14)**
-- The word "jealous" in Scripture is closely tied to valuing one's covenant relationship, not a petty negative emotion.
-- Remarkably, Exodus 34:14 reveals that "Jealous" is actually one of God's names.
-- Application: modern culture elevates athletes and celebrities to god-like status, mirroring ancient Rome's glorification of Olympians — God tolerates no rivals.
 
-**Point 2 — God's Wrath Will Be Fulfilled (Isaiah 13:6-9; Romans 1:18-23; Romans 12:19; Revelation 14:17-20)**
-- God's wrath has been stored up and will be poured out — illustrated by the vivid image of the great wine press of God's wrath (Revelation 14).
-- The Day of the Lord described in Isaiah 13 involves cosmic signs: darkened sun and moon, melting hearts, and fear among all people.
-- Romans 1 grounds the reason for wrath: mankind suppresses the truth, exchanges the glory of God for created things, and becomes vain in its reasoning.
-- "Vengeance is mine, I will repay, saith the Lord" — God's justice is certain.
-- This point is meant not to discourage but to make the believer grateful for grace.
+### Absolute 1 — God Is a Jealous God (Exodus 20:5; 34:14)
+- The word "jealous" is not inherently negative; in Scripture it is closely tied to God's valuing his exclusive relationship with his people.
+- Exodus 34:14 reveals that "Jealous" is actually one of God's names.
+- Contemporary culture creates false gods (e.g., celebrity athletes); God's command against other gods remains absolute.
+- Proverbs 6:34 illustrates how misplaced jealousy becomes destructive rage — a warning about idolatry's consequences.
 
-**Point 3 — God's Grace Saves You (Ephesians 2:8; Romans 5:15)**
-- Salvation is entirely a gift of God — unmerited and unearnable.
-- Just as one man (Adam) brought sin, one man (Jesus Christ) brings grace abounding to many.
-- Grace is boundless precisely because it must be sufficient to cover all of God's wrath.
-- Challenge: believers too easily lose sight of this immeasurable gift amid daily worries (mortgages, politics, workplace conflicts).
+### Absolute 2 — God's Wrath Will Be Fulfilled (Isaiah 13:6-9; Revelation 14:17-20; Romans 1:18-23)
+- God's wrath, though restrained in the current age of grace, is real and accumulating.
+- Isaiah 13:6–9 describes the Day of the Lord as a day of cosmic darkness, melting hearts, and fierce anger against sinners.
+- Revelation 14:17–20 pictures the harvest of the earth being cast into "the great wine press of the wrath of God," with blood flowing for 1,600 furlongs.
+- Romans 1:18–23 grounds God's wrath in humanity's willful suppression of truth and exchange of God's glory for created things — people are "without excuse."
+- The point is not discouragement but gratitude: believers have been spared this wrath through Christ.
 
-**Point 4 — God Loves You (Romans 8:35-39; John 3:16)**
-- Nothing — tribulation, persecution, famine, spiritual powers, height or depth — can separate the believer from the love of God in Christ Jesus.
-- Paul identifies a two-pronged attack: earthly, physical things try to separate us from Christ's love; spiritual forces try to separate us from God's love. Neither succeeds.
-- Losing love is one of life's greatest heartaches; the absolute certainty of God's love is therefore one of the greatest comforts.
-- God's love, understood in biblical terms of choice and preference, means He chose believers before the foundation of the world.
+### Absolute 3 — God's Grace Saves You (Ephesians 2:8; Romans 5:15)
+- Ephesians 2:8 — salvation is entirely by grace through faith, a gift of God, not of human works.
+- Romans 5:15 — as one man (Adam) brought death, so one man (Jesus Christ) brings the free gift of grace to many.
+- Grace is boundless precisely because it must cover the full weight of God's wrath.
+- The speaker challenged the congregation not to let daily anxieties (finances, politics, workplace tensions) crowd out appreciation for this immeasurable gift.
 
-**Point 5 — God Will Rapture You (1 Thessalonians 4:13-17; Revelation 4:1)**
-- The rapture is pre-tribulational — believers are not appointed to go through God's wrath.
-- The qualifier: "if we believe that Jesus died and rose again" (1 Thessalonians 4:14).
-- The dead in Christ rise first; then living believers are caught up together with them in the clouds.
-- Revelation 4:1 — "Come up hither" — is seen as a preview of the rapture call: the trumpet, the archangel's voice, and God's invitation.
-- The speaker expresses personal longing to have lived faithfully before that moment arrives, citing heroes of faith and history (Paul, Tyndale, Washington) as those he hopes to stand before worthily.
+### Absolute 4 — God Loves You (Romans 8:35-39)
+- Romans 8:35–39 lists two categories of things that cannot separate believers from God's love:
+  - Physical/earthly trials (tribulation, distress, persecution, famine, nakedness, peril, sword) — cannot separate us from the love of *Christ*.
+  - Spiritual/cosmic forces (angels, principalities, powers, height, depth) — cannot separate us from the love of *God*.
+- Believers are declared "more than conquerors" — recovering and surpassing what Adam lost.
+- God's love is described as an expression of his choice (election) made before the foundation of the world.
 
-**Point 6 — God Will Win the War (Revelation 20:11-12; Revelation 21:4)**
-- The Great White Throne judgment: all the dead, small and great, stand before God; books are opened; death and hell are cast into the lake of fire.
-- A new heaven and new earth follow — no more pain, sorrow, death, night, or sin.
-- Jesus himself is the light of the new world; the dark, cold universe is replaced by an eternal, glorious creation.
+### Absolute 5 — God Will Rapture You (1 Thessalonians 4:13-17; Revelation 4:1)
+- 1 Thessalonians 4:13–17 reveals the Rapture: the dead in Christ rise first, then living believers are caught up together with them in the clouds to meet the Lord in the air.
+- The qualifier: belief that Jesus died and rose again (v. 14).
+- Revelation 4:1 — John's experience of a trumpet voice saying "Come up hither" is presented as a preview of what the Church will hear at the Rapture.
+- The Rapture is described as imminent (no prophecy must precede it) and distinct from the rapture events described later in Revelation.
+- The speaker rejected the view that the Church will pass through the Tribulation, arguing God's grace is sufficient to spare believers from his wrath entirely.
 
-**Closing Challenge**
-- Are you prepared to be among those present at these events?
-- Have you exchanged the temporal things of this world for the eternal?
-- Are you ready to cast off mortality and put on immortality?
+### Absolute 6 — God Will Win the War (Revelation 20:11-15; 21:4)
+- Revelation 20:11–15 — the Great White Throne Judgment: all the dead stand before God; death and hell are cast into the lake of fire.
+- Revelation 21:4 — in the new heaven and new earth there will be no more pain, sorrow, death, or night; Jesus himself is the light.
+- The universe's darkness and decay will be replaced entirely by a new creation.
+- Closing challenge: Are you prepared to be among those present? Have you exchanged temporal things for eternal ones?
 
 ## Cross-References
 *(Leave empty — cross-references are added separately)*
+
+## Series
+Part of the [God's Absolutes](../series/gods-absolutes.md) series.
