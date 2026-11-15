@@ -1,5 +1,5 @@
 ---
-title: "Assoc Pastor Mark Simpson Bible Transitions Part 2"
+title: "Bible Transitions Pt. 2"
 date: 2026-11-02
 speaker: Assoc Pastor Mark Simpson
 series: Bible Transitions

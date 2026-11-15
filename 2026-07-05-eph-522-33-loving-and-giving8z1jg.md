@@ -1,5 +1,5 @@
 ---
-title: "Assoc Pastor Mark Simpson Eph 522-33 Loving and Giving8z1jg"
+title: "Eph 5:22-33 Loving and Giving"
 date: 2026-07-05
 speaker: Assoc Pastor Mark Simpson
 series: Ephesians Study

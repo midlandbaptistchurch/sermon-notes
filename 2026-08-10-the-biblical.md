@@ -1,5 +1,5 @@
 ---
-title: "The Biblical Timeline: A Tool for Rightly Dividing Scripture"
+title: "The Biblical Timeline Pt. 3"
 date: 2026-08-10
 speaker: Assoc Pastor Mark Simpson
 series: One Book Rightly Divided

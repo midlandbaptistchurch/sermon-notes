@@ -1,5 +1,5 @@
 ---
-title: "Assoc Pastor Mark Simpson Understanding Wealth in the Bible Part 1"
+title: "Understanding Wealth in the Bible Part 1"
 date: 2026-09-21
 speaker: Assoc Pastor Mark Simpson
 series: One Book Rightly Divided

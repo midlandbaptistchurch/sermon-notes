@@ -1,5 +1,5 @@
 ---
-title: "Assoc Pastor Mark Simpson Eph 522-33 Headship part"
+title: "Eph 5:22-33 Headship Part 2"
 date: 2026-06-21
 speaker: Assoc Pastor Mark Simpson
 series: Ephesians 5 Study on Marriage and Headship

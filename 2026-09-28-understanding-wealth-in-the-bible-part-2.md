@@ -1,5 +1,5 @@
 ---
-title: "Assoc Pastor Mark Simpson Understanding Wealth in the Bible Part 2"
+title: "Understanding Wealth in the Bible Pt. 2"
 date: 2026-09-28
 speaker: Assoc Pastor Mark Simpson
 series: Understanding Wealth in the Bible

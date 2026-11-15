@@ -1,5 +1,5 @@
 ---
-title: "Assoc Pastor Mark Simpson Assessing"
+title: "Assessing"
 date: 2026-02-23
 speaker: Assoc Pastor Mark Simpson
 series: Guidelines of Grace

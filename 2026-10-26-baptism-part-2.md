@@ -1,5 +1,5 @@
 ---
-title: "Assoc Pastor Mark Simpson Baptism Part 2"
+title: "Baptism Pt. 2"
 date: 2026-10-26
 speaker: Assoc Pastor Mark Simpson
 series: 
